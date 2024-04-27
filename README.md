@@ -1,5 +1,5 @@
 - 👋 Hola, soy @Rayo600
-- 👀 Estoy interesado en geometry dash y los archivos batch para crear virus simples
+- 👀 Estoy interesado en geometry dash, los archivos batch para crear virus simples y minecraft
 - 🌱 Actualmente estoy aprendiendo nada
 - 💞️ Busco colaborar en nada
 - 📫 Cómo contactarme Rayo60044@outlook.com
